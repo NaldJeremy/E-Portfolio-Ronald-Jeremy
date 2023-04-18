@@ -1,2 +1,2 @@
-# E-Portfolio-Ronald-Jeremy
-Here is my portfolio for support my resume
+# E-Portofolio-Ronald-Jeremy
+Here is my E-Portofolio to support my resume 
